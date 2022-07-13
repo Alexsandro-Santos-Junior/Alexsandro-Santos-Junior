@@ -1,7 +1,7 @@
 ### Olá tudo bem? Prazer sou o Alexsandro!👋
 
 
-- 🔭 Em busca do meu primeiro estágio
+- 🔭 Em busca de crescimento profissional
 - 🌱 Estudando Analise e desenvolvimento de sistema
 
 <div>
